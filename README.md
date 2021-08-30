@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Kiquro
+- 👀 I’m interested in games, music, skating
+- 📫 How to reach me: Discord: Kiquro#1871 or Kiquro on all platforms
